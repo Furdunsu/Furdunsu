@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Furdunso
-- 👀 I’m interested in web desenvolving, full staks
+- 👀 I’m interested in web desenvolving, full stack
 - 🌱 I’m currently learning programing and analizing and desenvolviment of software
 - 💞️ I’m looking to collaborate on T.I, system, manutencion and communication
 - 📫 How to reach me my instagram @h.martins27 or my e-mail heron.martins63@gmail.com
